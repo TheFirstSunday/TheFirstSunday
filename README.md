@@ -13,5 +13,5 @@
 - 💬 Ask me about anything that interests you.
 - 📫 How to reach me: 2621949203@qq.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: looking for...
+- ⚡ Fun fact: looking for work
 
